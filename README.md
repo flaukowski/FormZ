@@ -10,4 +10,6 @@ Even though I believe wrestling to be the most pure form of competition, the poi
 4.  For action, arms to arms, legs to legs, thereby allowing a fusion of Greco, Sumo, Judo, Freestyle, etc
 5.  No striking, no leg grabbing... this is about respect for the competition
 6.  One warning before disqualification
-7.  Evolve it and have fun!
+7.  Evolve it
+8.  This is about human connection beyond written or spoken word
+9.  Have fun
